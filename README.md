@@ -1,8 +1,8 @@
 #assim eu sou 
 - Lorena Felix Ferreira:girl:
 - Idade 15 
-- Estou no primero ano do ensino medio 
-- O que eu mais faço no meu tempo livre e dormir e escutar musica 🎶😴
+- Estou no primeiro ano do ensino médio 
+- O que eu mais faço no meu tempo livre e dormir e escutar música 🎶😴
 - Não trabalho, não foço curso
 - meu email: lorena.felix.ferreira@escola.pr.gov.br
 - meu insta:@lorennfelix
