@@ -1,5 +1,5 @@
 #assim eu sou 
-- Lorena Felix Ferreira:girl:
+- Lorena Felix Ferreira👧🏻
 - Idade 15 
 - Estou no primeiro ano do ensino médio 
 - O que eu mais faço no meu tempo livre e dormir e escutar música 🎶😴
